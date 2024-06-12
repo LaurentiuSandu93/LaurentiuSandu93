@@ -1,7 +1,7 @@
 👋 Hi, I’m @LaurentiuSandu93                            
 👀 Interested in QA/testing                         
 🌱 Seeking opportunities in QA or testing projects                          
-📫 Reach me at +40 720355887
+📫 Reach me at +40 720355887                
 📫 E-mail: nicolaelaurentiu13@yahoo.com         
 😄 Pronouns: Mr                               
 
